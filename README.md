@@ -1,5 +1,1 @@
 Nothing to Read here
-:::::   \
-          \
-:::::     /
-        /
